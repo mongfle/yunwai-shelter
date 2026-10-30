@@ -1,4 +1,4 @@
-<img width="2560" height="1105" alt="image" src="https://github.com/user-attachments/assets/7741f9f7-cd62-45b8-be63-07eeb1953767" />你在人间专注，橘座替你修仙。
+你在人间专注，橘座替你修仙。
 
 https://mongfle.github.io/yunwai-shelter/
 
